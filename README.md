@@ -1,1 +1,1 @@
-Finf my coursework from 2nd Year in this folder
+Find my coursework from 2nd Year in this folder
